@@ -2,7 +2,7 @@
 Opus Life is Life
 
 
-All together now
+Alone now and maybe tommorow
 Live is life
 Live is life
 Live is life
